@@ -4374,3 +4374,10 @@ Muse 能帮你记日子、备草稿、提醒你露面，但真正坐下来吃顿
 - 每条的「三步」直接复制去跟 Muse 对话就能用。
 - 涉及登录、付款、刷脸、提交申报的步骤，必须本人动手，Muse 只帮你准备和盯着。
 - 医疗、理财相关内容只做信息整理，不构成诊断或投资建议，关键决定以官方渠道为准。
+
+## 📬 联系方式
+
+- 𝕏：[@evanwritesx](https://x.com/evanwritesx)
+- Telegram：[@EvanCreates](https://t.me/EvanCreates)
+- TG 交流群：[t.me/jason_Telegramx](https://t.me/jason_Telegramx)
+- TG 频道：[t.me/APPKITLIFE](https://t.me/APPKITLIFE)
